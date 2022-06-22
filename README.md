@@ -16,5 +16,5 @@
 * **tg** @BirrTaty
 * **email** birrtaty@gmail.com
 
-#### [Резюме](https://docs.google.com/document/d/1UDr5SDDv6wcBL1fK9CWsmmyWanoex7rM1kF4cYKjzhY/edit?usp=sharing)
+#### [Резюме]([https://docs.google.com/document/d/1UDr5SDDv6wcBL1fK9CWsmmyWanoex7rM1kF4cYKjzhY/edit?usp=sharing](https://drive.google.com/drive/folders/1BSHzs8dJPtLosioplhWUWLpBvExgd6eX))
 
